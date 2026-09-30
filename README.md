@@ -1,2 +1,0 @@
-# Yousef Hamdy Portfolio
-
